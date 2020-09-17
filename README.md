@@ -1,1 +1,1 @@
-https://ra4ek16.github.io/rsschool-cv/CV
+https://ra4ek16.github.io/rsschool-cv/cv
